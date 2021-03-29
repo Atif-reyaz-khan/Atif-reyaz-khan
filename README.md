@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **https://www.linkedin.com/in/atifreyazkhan/**
 
-- 📄 Know about my experiences [https://docs.google.com/document/d/1F_svJgM86deB1l0q5w0SwIa5mvTzXAcIJkkT4282YwE/edit?usp=sharing](https://docs.google.com/document/d/1F_svJgM86deB1l0q5w0SwIa5mvTzXAcIJkkT4282YwE/edit?usp=sharing)
+
 
 - ⚡ Fun fact **I will not repair your computer**
 
